@@ -1,0 +1,1 @@
+[“standing”](https://thenounproject.com/ncyip/collection/humans/?i=853900) icon by Nicole Yip from [the Noun Project](http://thenounproject.com/).
